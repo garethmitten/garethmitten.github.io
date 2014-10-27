@@ -17,3 +17,8 @@ We are looking for the following recipe types
 
 [Enter A Recipe](https://docs.google.com/forms/d/1V67CV4Gznfe8_qG4RU20ELvsXTfjwDymPqHrHvgY0uQ/viewform?usp=send_form)
 
+"Why should I upload my recipe, what's in it for me?"
+
+Not sure yet really.  I was thinking about offering some kind of random prize once I get going.  
+
+
